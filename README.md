@@ -1,5 +1,5 @@
-- 👋 Hi, I’m @SickaVfx
-- 👀 I’m interested in ui /ux design 
+- 👋 Hi, I’m @SickaVfx @Remmiesounkilla @Remmingtonswear
+- 👀 I’m interested in ui /ux design / Animation / Music Production /
 - 🌱 I’m currently learning to design applications 
 - 💞️ I’m looking to collaborate on projects concerning apps creating 
 - 📫 You can reach me on Instagram @remmiesounkilla
